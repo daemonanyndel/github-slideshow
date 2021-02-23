@@ -1,0 +1,1 @@
+Sea gulls singing at dawn, foxes crying beneath moonlight
